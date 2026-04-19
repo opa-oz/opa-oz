@@ -2,7 +2,7 @@
 
 ## I'm a Team Leader, Developer, and Mentor!
 - 🔭 I’m currently working at [Woven by Toyota]([https://woven-planet.global/en](https://woven.toyota/en))
-- 🥅 2025 Goals: To get buffed
+- 🥅 2026 Goals: Buy a house
 - ⚡ Fun fact: I hate freelancing, but I am freelancing **A LOT**
 
 ### Connect with me:
